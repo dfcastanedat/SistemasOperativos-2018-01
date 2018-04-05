@@ -4,4 +4,4 @@ Daniel Fernando Castañeda
 
 Diego Fernando Chacón   
 
-Álbert Yarid Péreza
+Álbert Yarid Pérez
